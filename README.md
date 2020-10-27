@@ -7,6 +7,6 @@ Bonjour à tous je vous présente ce script, un shops illégal en RageUI qui per
 
 Pack  avec tous les scripts:  https://mega.nz/file/HIx30SAa#awnc1aZXETGqUIpQygdQpzo86TaJsEufhunhT7qfu8Q
 
-▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
+▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 𝐌𝐨𝐧 𝐝𝐢𝐬𝐜𝐨𝐫𝐝
 https://discord.gg/wdZfsHd
